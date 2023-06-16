@@ -1,0 +1,1 @@
+# kurzwal.github.io
